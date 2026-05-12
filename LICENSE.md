@@ -1,4 +1,4 @@
-# 
+# Enhance Cubase for PC | Cubase for Windows with elite Cubase for PC | Cubase for Windows Panel | effects-chains + synthesizers, the #1 panel. Includes effects-chains and
 
 
 
